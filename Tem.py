@@ -1,2 +1,2 @@
-# This is a test for the two idiots who need to give their life a little more jazz
+# donkey Kong is the best game ever!
 # Are you sure that I don't know jack???
